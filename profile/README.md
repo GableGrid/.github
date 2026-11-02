@@ -23,5 +23,5 @@ Client work is always kept private.
 
 ## Contact
 
-Led by Maruf Hossen, founder.
-https://gablegrid.com · maruf@gablegrid.com · https://www.linkedin.com/in/maruf-hossen/
+A small team led by Maruf Hossen, founder.
+https://gablegrid.com · maruf@gablegrid.com · [Company page](https://www.linkedin.com/company/gablegrid) · [Maruf on LinkedIn](https://www.linkedin.com/in/maruf-hossen/)
